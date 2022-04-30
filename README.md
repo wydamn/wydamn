@@ -4,3 +4,4 @@ github, which I will provide links to.
 
 If you'd like to learn more, please visit my youtube which will be
 linked on a per project basis.
+lol I really never did anything with this did I?
